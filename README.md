@@ -1,0 +1,1 @@
+Companion artifact placeholder for article research.
